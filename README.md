@@ -9,7 +9,6 @@
   
 <p align="center"><img src="https://files.catbox.moe/1oayqy.png" ">
 
-<p align="center"><img src="https://files.catbox.moe/yffbah.png" ">
 
 <p align="center"><img src="https://files.catbox.moe/d0z14w.png" ">
 
